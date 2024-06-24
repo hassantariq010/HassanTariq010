@@ -13,7 +13,7 @@ As a Front End Developer, I specialize in crafting responsive and dynamic user i
 #### Frontend Development
 - **Languages:** HTML5, CSS3, JavaScript (ES6+)
 - **Libraries & Frameworks:** React.js, Tailwind CSS, Bootstrap5, jQuery
-- - **Tools:** Visual Studio, Visual Studio Code and other IDEs
+- **Tools:** Visual Studio, Visual Studio Code and other IDEs
 - **Graphic Design:** Adobe Photoshop, Canva 
 - **Moreover:** C, C++, PHP, SQL, MySQL
 
