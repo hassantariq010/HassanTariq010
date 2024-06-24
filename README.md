@@ -28,8 +28,9 @@ I believe that great design is not just about aesthetics but also about usabilit
 
 I am always excited to connect with other professionals, whether it's for potential collaborations, discussing new ideas, or simply networking. Feel free to reach out to me through any of the following platforms:
 
-- **LinkedIn:** [Hassan Tariq](https://www.linkedin.com/in/hassan0999)
-- **Facebook:** [Hassan Tariq](https://facebook.com/hassantariq0999)
+- **LinkedIn:** [Hassan Tariq](https://www.linkedin.com/in/hassantariq010)
+- **Facebook:** [Hassan Tariq](https://www.facebook.com/hassantariq010)
+- **Twitter:** [Hassan Tariq](https://x.com/hassant010)
 - **Email:** [Hassan Tariq Email](mailto:hassantariq0999@gmail.com)
 
 
