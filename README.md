@@ -1,6 +1,6 @@
 # Hassan Tariq - Front End Developer & Designer
 
-## Welcome to My GitHub Profile!
+## Welcome to Hassan Tariq Official Profile!
 
 I'm Hassan Tariq, a dedicated and passionate Front End Developer and Designer with a passion for creating intuitive and visually appealing web applications. With expertise in the React JS, customized development, I blend technical skills with a strong design aesthetic to deliver seamless user experiences.
 
