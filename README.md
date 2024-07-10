@@ -31,7 +31,7 @@ I am always excited to connect with other professionals, whether it's for potent
 - **LinkedIn:** [Hassan Tariq](https://www.linkedin.com/in/hassantariq010)
 - **Facebook:** [Hassan Tariq](https://www.facebook.com/hassantariq010)
 - **Twitter:** [Hassan Tariq](https://x.com/hassant010)
-- **Email:** [Hassan Tariq Email](mailto:hassantariq0999@gmail.com)
+- **Email:** [Hassan Tariq Email](mailto:hello@hassantariqofficial.com)
 
 
 ### Fun Fact
